@@ -1,1 +1,3 @@
-# annotations-edits - changes to copy
+vaccine safety
+vaccine does not cause disease
+
