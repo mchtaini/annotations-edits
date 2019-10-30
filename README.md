@@ -1,3 +1,3 @@
 vaccine safety
-more edits
+vaccine does not cause disease
 
